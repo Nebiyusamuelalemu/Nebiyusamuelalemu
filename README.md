@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on: noting thank you very much.
 - 📫 How to reach me: why do you want to reach me???
 - 😄 Pronouns: https://github.com/user-attachments/assets/3078fa96-3aa5-4160-abab-f5d3d53f3ed1
-- ⚡ Fun fact: your not a real programer
+- ⚡ Fun fact: i am 15/softmore in highschool
+- 🗿 Sad fact: your not a real programer
 
 <!---
 Nebiyusamuelalemu/Nebiyusamuelalemu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
